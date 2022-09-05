@@ -2,4 +2,4 @@
 - 👀 I’m interested in engineering, programming, aviation, cars, trying to understand world around me and cultire a little bit.
 - 🌱 I’m currently learning android development
 - 💞️ I’m looking to collaborate on *still searching*
-- 📫 How to reach me zhk.sem@yandex.ru, vk.com/eugcapt, inst: old_chegevara
+- 📫 How to reach me: zhk.sem@yandex.ru, vk.com/eugcapt, inst: old_chegevara
